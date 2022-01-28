@@ -1,0 +1,2 @@
+# YESHUA-AU-CENTRE
+LES AVERTIS :  Y. E. S. H. U. A.     AU.     C. E. N. T. R.  E.     Les Avertis est un groupe des enfants de Dieu, les disciples de Yeshua,  Dépuis 2014 le seigneur Yeshua nous a mis á part pour oeuvré ainsi dans sa moisson. Le passage biblique 2 pierre 3:17-18, nous éclaire , pourquoi les avertis nous devrions restés dans la doctrine de Yeshua,  Nos prédications sont orientées vers le royaume, la vie éternelle et la bonne marche pendant nos jours sur cette terre.
